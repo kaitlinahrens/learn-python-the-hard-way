@@ -1,0 +1,1 @@
+# excercises 36 & 37 were review games that required flashcards & couldn't really be transferred to a computer
